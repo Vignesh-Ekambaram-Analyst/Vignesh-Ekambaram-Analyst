@@ -71,12 +71,3 @@ When I'm not crunching data or managing projects, you'll find me conquering mara
 [![](https://visitcount.itsvg.in/api?id=Vignesh-Ekambaram-Analyst&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-
-## 🏃‍♂️ Beyond Work
-
-When I'm not crunching data or managing projects, you'll find me conquering marathons and cycling challenges. I've completed the 1,800 km K-Water cycling path in South Korea and secured a top-10 finish in the Daejeon Half Marathon.
-
-## 🤝 Let's Connect!I'm always excited to collaborate on innovative projects, share knowledge, or explore new opportunities. Feel free to reach out and connect!
-
-- 📧 Email: [vignesh.ekambaram@skema.edu](mailto:vignesh.ekambaram@skema.edu)
-- 🔗 LinkedIn: [www.linkedin.com/in/vigneshekambaram](https://www.notion.so/www.linkedin.com/in/vigneshekambaram)
